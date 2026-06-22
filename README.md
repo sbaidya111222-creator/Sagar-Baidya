@@ -1,2 +1,0 @@
-# Sagar-Baidya
-Microbiologist
